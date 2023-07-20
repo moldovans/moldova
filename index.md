@@ -1,4 +1,5 @@
-# Conformitatea Statutelor Partidului Liberal (PL) și Partidului Național Liberal (PNL) din Republica Moldova cu Principiile Constituționale: o Analiză Juridică
+# Conformitatea Partidului Liberal (PL) și Partidului Național Liberal (PNL) din Republica Moldova cu Constituția Republicii 
+#### o Analiză Juridică
 
 Partidul Liberal (PL) și Partidul Național Liberal (PNL) din Republica Moldova susțin în statutul lor obiectivul unirii cu România. Această poziție ridică întrebări cu privire la conformitatea lor cu principiile fundamentale ale Constituției Republicii Moldova. În acest articol, vom examina acest aspect prin referire explicită la prevederile statutelor lor.
 
